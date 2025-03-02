@@ -1,2 +1,2 @@
 # GisangDAN
-dring military service
+during military service
